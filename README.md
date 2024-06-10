@@ -2,7 +2,7 @@
 
 -👀 Je suis développeur d’applications mobiles, développeur web, concepteur Ui/Ux
 
--🌱 🎨
+-🌱 🎨 👽
 
 -💞️ Je cherche à collaborer sur des projets de design, des applications mobiles....
 
